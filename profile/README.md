@@ -3,6 +3,10 @@
 Antevisão Casa Pia-Benfica: Gansos e águias com destinos de voo bem definidos
 O Casa Pia pretende fugir à luta pela manutenção, enquanto que o Benfica não pode perder pontos na luta pelo título.
 
+<strong>🔴AO VIVO▶ <a rel="nofollow" href="https://onlinestreamshd.com/pt-soccer/"> CASA PIA X BENFICA AO VIVO ONLINE </a></strong>
+
+<strong>🔴AO VIVO▶ <a rel="nofollow" href="https://onlinestreamshd.com/pt-soccer/"> CASA PIA X BENFICA AO VIVO ONLINE </a></strong>
+
 Antevisão Casa Pia-Benfica: Gansos e águias com destinos de voo bem definidos
 Rafa Silva tenta fugir a Jaja. O atacante das águias não conseguiu criar muitos desequilíbrios esta noite. EPA/FILIPE AMORIM epa10945768
 O Benfica desloca-se este domingo a Rio Maior para medir forças com o Casa Pia, em jogo da 26ª jornada da Primeira Liga. Depois da jornada europeia positiva, as águias querem manter a série vitoriosa perante uma formação casapiana que precisa de pontuar para afastar o espectro dos lugares de descida. Para tal, os gansos procurarão fazer, pelo menos, o mesmo resultado obtido na primeira volta.
